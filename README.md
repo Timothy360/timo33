@@ -1,1 +1,1 @@
-# timo33hello my name is timo33
+# timothy is me
